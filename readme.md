@@ -1,4 +1,4 @@
-# Yomi Ogunyinka (BA Business Studies) 
+# Lateef Salu (BA Business Studies) 
 | EMAIL | WEBSITE | LINKEDIN |
 | :-: | :-: | :-: |
 Yomi.O@JaghoConsultants.co.uk | http://jagho.info | https://www.linkedin.com/in/jaghoconsultants/ 
